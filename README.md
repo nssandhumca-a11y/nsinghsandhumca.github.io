@@ -1,1 +1,0 @@
-# nsinghsandhumca.github.io
